@@ -1,1 +1,1 @@
-### `*SESSION ID GENERATOR DEVELOPED BY ᴛᴏɴɪᴄ ᴍᴜɴᴏᴅᴀᴡᴀғᴀ*`
+### `*SESSION ID GENERATOR DEVELOPED BY Tonic Munodawafa*`
